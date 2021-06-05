@@ -1,2 +1,2 @@
 # ticktacktoe
-It is hard to lose😊😂😁  .
+It is hard to lose😊�.
